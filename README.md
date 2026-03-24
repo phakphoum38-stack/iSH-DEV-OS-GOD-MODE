@@ -1,0 +1,1 @@
+# iSH-DEV-OS-GOD-MODE
